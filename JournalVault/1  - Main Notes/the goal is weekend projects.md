@@ -1,0 +1,1 @@
+I think that the only way for me to be making art and reading/writing simultaneously is to keep the weekends open for making and to limit my projects to what can be done in a weekend.
